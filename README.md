@@ -6,9 +6,9 @@ Another thing about the files is that you can access it so feel free to view the
 
 
 
-### A Link of some songs I like to binge on :
-[Love Like you - Rebecca Sugar](https://www.youtube.com/watch?v=GDTD24KsdGc)
-
+### Links of some songs I like to binge on :
+[Love Like you - Rebecca Sugar](https://www.youtube.com/watch?v=GDTD24KsdGc)  
+[credit song to my death](https://www.youtube.com/watch?v=urxeNbBc1nk)
 
 
 ```markdown
