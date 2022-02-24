@@ -1,5 +1,7 @@
 ### Welcome to My Sets of Work 😆 !
                                                   *and I felt myself crumble - to you and your trap*  
+
+
 Hii :D ! My name is Sophie Averilla and this website is mainly to present  a few documents of poetry, images , and other art/ music related stuff that I didn't feel to share as much in social platforms or with people I know.
 Another thing about the files is that you can access it so feel free to view them 💕
 
