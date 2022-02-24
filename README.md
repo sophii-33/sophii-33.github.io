@@ -1,6 +1,6 @@
 ### Welcome to My Sets of Work 😆 !
                                                   *and I felt myself crumble - to you and your trap*  
-Hii :D ! My name is Sophie Averilla and this website is mainly to present  a few documents of poetry, images , and other art/ music related stuff that I didn't feel to share as much in social platforms of with people I know.
+Hii :D ! My name is Sophie Averilla and this website is mainly to present  a few documents of poetry, images , and other art/ music related stuff that I didn't feel to share as much in social platforms or with people I know.
 Another thing about the files is that you can access it so feel free to view them 💕
 
 
@@ -12,9 +12,10 @@ Another thing about the files is that you can access it so feel free to view the
 
 ### Links and/or PDF files of poems!!
 ["ex,present,dislikes"](https://docs.google.com/document/d/1gMCRiSgCtUl3tNmlt1ovY7619-HJLMMCJS8bcrRO20U/edit?usp=sharing)   
-["dedications to lovers and exes"](
-["to that girl I love"](
-[It goes darks](
+["dedications to lovers and exes"]
+["to that girl I love"] 
+[It goes darks]
+
 
 ### Few images of journal entries or collaging 😊
  
