@@ -20,4 +20,4 @@ Another thing about the files is that you can access it so feel free to view the
 
 
 
-P.S I do want to add in some more content but the spirit of motivation left my body 🥲
+P.S I do want to add in some more content but be patient ;DD
