@@ -17,13 +17,12 @@ Another thing about the files is that you can access it so feel free to view the
 ### Links and/or PDF files of poems!!
 > ["ex,present,dislikes"](https://docs.google.com/document/d/1gMCRiSgCtUl3tNmlt1ovY7619-HJLMMCJS8bcrRO20U/edit?usp=sharing)   
 > ["dedications to lovers and exes"](https://drive.google.com/file/d/1A6NUSfio2hs_HeBf6NmY112ghndOVOTK/view?usp=sharing)  
-> ["to that girl I love"] - to be added 😅  
-> ["hues" (still finishing)](https://docs.google.com/document/d/1gWBkXMj3UzTl0luqJC_LNLEH8LDfrhQoSjhHTM80jbw/edit?usp=sharing)
+> ["hues"](https://docs.google.com/document/d/1gWBkXMj3UzTl0luqJC_LNLEH8LDfrhQoSjhHTM80jbw/edit?usp=sharing)
 
 
 ### Few images of journal entries or collaging 😊
  
-![image](https://photos.app.goo.gl/a1pV1iu2Yem15cFg9)
+![jean-genshin](https://photos.app.goo.gl/a1pV1iu2Yem15cFg9)
 
 
 
