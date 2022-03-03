@@ -10,6 +10,8 @@ Another thing about the files is that you can access it so feel free to view the
 - [Love Like you - Rebecca Sugar](https://www.youtube.com/watch?v=GDTD24KsdGc)  
 - [credits song to my death](https://www.youtube.com/watch?v=urxeNbBc1nk)
 - [rises the moon](https://www.youtube.com/watch?v=5e1zT7miep8)
+- [TWICE- The Feels](https://www.youtube.com/watch?v=f5_wn8mexmM)
+- [IU - Lilac](https://www.youtube.com/watch?v=v7bnOxV4jAc)
 
 
 ### Links and/or PDF files of poems!!
@@ -21,6 +23,7 @@ Another thing about the files is that you can access it so feel free to view the
 
 ### Few images of journal entries or collaging 😊
  
+![image](https://photos.app.goo.gl/a1pV1iu2Yem15cFg9)
 
 
 
