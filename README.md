@@ -20,9 +20,10 @@ Another thing about the files is that you can access it so feel free to view the
 > ["hues"](https://docs.google.com/document/d/1gWBkXMj3UzTl0luqJC_LNLEH8LDfrhQoSjhHTM80jbw/edit?usp=sharing)
 
 
-### Few images of journal entries or collaging 😊
+### Images of journal entries or collaging 😊
  
-![jean-genshin](https://photos.app.goo.gl/a1pV1iu2Yem15cFg9)
+![jean-genshin-journalssophii](https://user-images.githubusercontent.com/99771305/156588972-8b114648-b4a6-4e4f-80f0-b8406fac3dea.jpg )
+
 
 
 
